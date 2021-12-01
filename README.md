@@ -10,3 +10,4 @@ wait no don't leave i swear i do cool things
   - html (sort of)
   - 
   - 
+- i primarily talk in lowercase because i'm quirky like that
